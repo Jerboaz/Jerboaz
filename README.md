@@ -8,6 +8,8 @@
 #### Pronouns: They/Them + He/It (+ Others)
 #### Sexuality: Pansexual (taken ily suitcase/sunnyy :3)
 
+#### also errmm my discord is fancase feel free to add me whenever uhhmmm
+
 ---
 
 ### Before You Interact (BYI):
