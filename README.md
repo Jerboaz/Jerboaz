@@ -1,4 +1,4 @@
-#### (temporary github page for ponytown tehehe working on ihjjjmmmm smthn else)
+#### (temporary github page for ponytown tehehe working on ihjjjmmmm smthn else (i literally just copy pasted my rentry here lmao))
 
 ---
 
@@ -17,7 +17,6 @@
 #### ~ I have ADHD
 #### ~ I use [tone indicators](https://toneindicators.carrd.co)
 #### ~ I misspell words and add extra letters on purpose
-#### ~ I'm almost always online and able to talk if I'm not in Do Not Disturb**
 
 ---
 
