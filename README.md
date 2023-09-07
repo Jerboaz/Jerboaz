@@ -4,7 +4,7 @@
 
 ### About Me:
 
-#### Names: Fan, Four, Ruby, Collin, Rivers, Oreo + more
+#### Names: Fan, Four, Ruby, Collin, Rivers, Oreo + more (mostly use Fan, Four, or Rivers)
 #### Pronouns: They/Them + He/It (+ Others)
 #### Sexuality: Pansexual (taken ily suitcase/sunnyy :3)**
 
