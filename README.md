@@ -1,4 +1,4 @@
-#### (temporary github page for ponytown tehehe working on ihjjjmmmm smthn else (i literally just copy pasted my rentry here lmao))
+#### (temporary github page for ponytown tehehe working on ihjjjmmmm smthn else i literally just copy pasted my rentry here lmao)
 
 ---
 
@@ -6,7 +6,7 @@
 
 #### Names: Fan, Four, Ruby, Collin, Rivers, Oreo + more (mostly use Fan, Four, or Rivers)
 #### Pronouns: They/Them + He/It (+ Others)
-#### Sexuality: Pansexual (taken ily suitcase/sunnyy :3)**
+#### Sexuality: Pansexual (taken ily suitcase/sunnyy :3)
 
 ---
 
